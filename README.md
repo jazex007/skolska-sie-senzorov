@@ -1,0 +1,1 @@
+# skolska-sie-senzorov
