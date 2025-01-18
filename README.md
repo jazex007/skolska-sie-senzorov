@@ -1,1 +1,1 @@
-# skolska-sie-senzorov
+# školska-sie-senzorov
